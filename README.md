@@ -5,7 +5,7 @@
 ## Known Scammers  
 
 - **Md Mainul Islam Shipon** – IP: 150.228.135.137  
-- **Abdul Hannan Juwel** – Scammer responsible for defrauding users of **$10,000**  
+- **Abdul Hannan Juwel** – Scammer responsible for defrauding users of **$63,000**  
 
 ## Action Needed  
 
